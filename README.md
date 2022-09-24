@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CbugCrazy21
+- 👀 I’m interested in game making
+- 🌱 I’m currently learning modeling in blender
+- :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D :D 
